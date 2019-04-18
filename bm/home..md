@@ -1,36 +1,13 @@
-META TAG (title): Publicidad para atraer clientes. Publicidad en Miami
+META TAG (title): Marketing for business. Advertising to attract customers
 
-META TAG (description): Ofrecemos estrategias de publicidad diseñada a la medida de sus necesidades específicas. Nuestro objetivo es hacer que su negocio se destaque entre la competencia utilizando la publicidad adecuada. Atraemos a los clientes que desean tus productos y/o servicios para  generar una relación duradera con su empresa.
+META TAG (description): Effective marketing strategies tailored to your business needs. Our goal is to make your company stand out from the competition using affordable marketing, reach customers who want your products and / or services and generate a lasting relationship
 
 --------------------------------------------------------------
-Crecemos tu negocio con publicidad 
-ATRAEMOS A TUS CLIENTES POTENCIALES
-Cómo lo hacemos?
 
-Estrategia
-Nuestra publicidad para lograr su exito
-Perfeccionamos su imagen corporativa, la mostramos al mundo y atraemos a sus clientes potenciales. En Bizmarketing.us, entendemos que cada negocio es único y requiere una estrategia de publicidad diseñada a la medida de sus necesidades específicas. Nuestro objetivo es hacer que su empresa se destaque entre la competencia, llegue a los clientes que desean sus productos y/o servicios y generen una relación duradera con su negocio. La imagen corporativa es uno de los aspectos que tenemos en cuenta al diseñar una estrategia de publicidad. No se trata solo del contenido visual, sino también del componente verbal y psicológico que permiten crear un vínculo emocional con el cliente. Una imagen corporativa diseñada a medida, ayuda a las empresas a mostrarse de manera coherente, al tiempo que genera confianza para sus clientes.La presencia online es otro eslabón imprescindible en el crecimiento de todo negocio. Internet hoy dia es la plataforma mas utilizada por las personas y si tu negocio no esta alli, practicamente no existes. Las oportunidades de crecimiento de los negocio se multiplican con una presencia online profesional y equilibrada. En Bizmarketing.us sabemos como mostrarle al mundo lo que haces. Tu marca llegara a nuevas fuentes de clientes, con la pasion y la fuerza que merece.
-
-• Desarrollar las acciones y recursos precisos para dar a conocer su marca, le permitirá alcanzar los objetivos finales de la empresa en menos tiempo y al menor costo.• 
-En Bizmarketing.us no solo tendrá a una agencia de publicidad de élite, tendrá a un equipo de profesionales que lo guiará para ayudarlo a crecer.• Usted conoce su negocio y nosotros cómo llenarlo de clientes. Nuestros especialistas en publicidad están a su disposición para hacerlo crecer
-
-¿Por qué Bizmarketing?
-Si quieres que tu negocio marque la diferencia, no basta con tener un nombre, un sitio web y alguna que otra acción de publicidad. Se necesita una estrategia bien diseñada, teniendo en cuenta las particularidades de tu negocio. En Bizmarketing.us no solo sabemos cómo contar tu historia, también dominamos todas las herramientas técnicas para que esta llegue a nuevos clientes de una manera profesional y eficiente, en el menor tiempo posible y al menor costo. Hacemos que marques la diferencia entre tu competencia, atrayendo a nuevos clientes y creando vínculos duraderos con ellos. 
-
-Servicios
-Nuestra experiencia a su disposición 
-Creación de Sitios web Optimizados > Diseño de marca e identidad > Publicidad digital e impresa > Dominio, Hosting y Correos > Fotografia Corporativa > Marketing por proximidad >
-
-Nuestro procesosencillo y eficiente
-Planificación
-Analizamos y evaluamos los objetivos de su negocio para crear una estrategia publicitaria realista, que se adapte a sus necesidades. Definimos las acciones de publicidad que se llevarán a cabo para lograr los objetivos, teniendo en cuenta los periodos a corto, mediano y largo plazo.
-Ejecución
-Desarrollamos las acciones definidas en el proceso de planificación. Nuestros diseñadores, programadores y especialistas en publicidad, se unen de manera operativa y eficiente para poner en marcha el plan establecido y llevarlo a buen término. Informándole sobre el progreso.
-Seguimiento
-Evaluamos y damos seguimiento al plan desarrollado. A través de este control podemos perfeccionarlo con la mayor inmediatez y eficiencia. Ganando en capacidad de respuesta de los usuarios y de reacción inmediata de los mismos, lo que nos hará ser más competitivos.
-
-Telefono +1 (786) 520 5860Correo electronico biz@bizmarketing.us
-• • • • • Bizmarketing.us
-Su proyecto será nuestra prioridad. Nuestra misión es crear una estrategia de publicidad que ayude a que su negocio crezca. Desarrollaremos un plan de ataque que fortalecerá su marca y la expondrá al mundo. Sabemos cuándo y cómo usar los medios, digitales o impresos, para llevar su negocio a un nivel más alto.
-• Inicio• Somos• Contacto• Servicios
-• Optimizacion de sitios web• Diseño de marca e identidad• Fotografia corporativa• Dominio y HostingBizmarketing.us. Todos los derechos reservados @2019
+Navigate to
+• Home• About us•  Services Web  Branding  Digital  Photography  Hosting• Contact us• Spanish
+• • • • • Marketing for your business We attract your potential customersHow we do it?StrategyOur marketing to achieve your business successWe perfect your corporate image, show it to the world and attract your potential customersAt Bizmarketing.us, we understand that each business is unique and requires a marketing strategy tailored to it's specific needs. Our goal is to make your business stand out from the competition, reach customers who want their products and / or services and generate a lasting relationship with the brand.The corporate image is one of the aspects we have into account when designing a marketing strategy for your business. It is not only the visual content, but also the verbal and psychological component that allow creating an emotional bond with the client. A corporate image tailored designed, helps businesses to be visually coherent, while generating confidence for their customers.Online presence, supported by effective marketing, is another essential link in the growth of every business. Today, the Internet is the most used platform by people and if your business is not there, you practically do not exist. The opportunities for business growth are multiplied with a professional and balanced online presence. We are a marketing agency, we know how to show the world what you do. Your brand will reach new sources of customers, with the passion and strength it deserves.
+• Developing the actions and resources required to publicize your brand, will allow you to achieve the final objectives of the company in less time and at the lowest cost.• In our marketing agency you will not only have an elite agency, you will have a team that will guide you to help you grow.• You know your business and we know how to fill it with customers. Our Marketing specialists are at your disposal to make it grow¿Why Bizmarketing?If you want your business to make a difference, it is not enough to have a name, a website and some other marketing action. A well-designed strategy is needed, taking into account the particularities of your business.We not only know how to tell your story, we also master all the technical tools so that it reaches new clients in a professional and efficient way, in the shortest possible time and at the lowest cost. We make you mark the difference between your competition, attracting new clients and creating lasting links with them.ServicesOur experience at your disposal Creation of Optimized Websites > Brand design and identity > Digital and printed advertising > Domain, Hosting and Mail > Corporate Photography > Proximitymarketing >Our processsimple and efficientPlanWe analyze and evaluate the objectives of your company to create a realistic plan that suits your needs. We define the marketing actions that will be carried out to achieve the objectives, taking into account the short, medium and long term periods.ExecutionWe develop the actions defined in the planning process. Our designers, programmers and marketing specialists join in an operational and efficient way to implement the established plan and bring it to reality. Keeping you informed all the time about the progressFollow UpWe evaluate and follow up on the developed plan. Through this control we can perfect it with the greatest immediacy and efficiency. Gaining in response capacity of users and their immediate reaction, which will make us more competitive.Phone +1 (786) 520 5860Email biz@bizmarketing.us
+• • • • • Bizmarketing.usYour project will be our priority. Our mission is to create a marketing strategy that helps your business grow. We will develop an attack plan that will strengthen your brand and expose it to the world. As a marketing agency, we know when and how to use the media, digital or printed, to take your business to a higher level.
+• Home• About• Contact us• Services
+• Website optimization• Identity and brand design• Corporate photography• Domain and HostingBizmarketing.us. All rights reserved @2019
